@@ -1,0 +1,1 @@
+first take the base of the pizza and then put some sauce on the base then put some toopings then cover it with cheese and bake in the oven 
